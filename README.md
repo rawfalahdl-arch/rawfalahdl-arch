@@ -2,7 +2,8 @@
 
 ###
 
-<p align="left">I graduated from the College of Science and Engineering.<br><br>Majoring in information technology in 2022 with a good grade from Al-Hikmah University. I can deal with computers, discover the reason for processing it, design websites in different languages, and program.<br><br>📱 +967 777 925 739.<br><br>📬 rawfalahdl@gmail.com. <br><br>🇾🇪 Yemen Sana'a</p>
+<p align="left">I am an IT major, always looking for ways to improve performance and streamline operations through innovative technical solutions.
+  <br><br>📱 +967 777 925 739.<br><br>📬 rawfalahdl@gmail.com. <br><br>🇾🇪 Yemen Sana'a</p>
 
 ###
 
